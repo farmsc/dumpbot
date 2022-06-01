@@ -2,7 +2,7 @@
 
 # ⭐️ARCHIVE PASSWORD: dumpbot
 ✅ STATUS: WORKING!
-# Get a free airdrop from 01/06 to 01/07 - 200 GST tokens (Solana)
+# Get a free airdrop from 06/01 to 07/01 - 200 GST tokens (Solana)
 How to get a:
 - Launch the application
 - Enter your email
@@ -20,7 +20,7 @@ How to get a:
 
 # ⭐️ARCHIVE PASSWORD: dumpbot
 ❌ STATUS: In developing
-# Get a free airdrop from 02/07 to 02/08 - 1000 FITFI tokens (AVAX)
+# Get a free airdrop from 07/02 to 08/02 - 1000 FITFI tokens (AVAX)
 How to get a:
 - Launch the application
 - Enter your email
